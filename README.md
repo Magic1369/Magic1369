@@ -1,4 +1,4 @@
-
+![logo](https://github.com/Magic1369/Magic1369/blob/main/github%20banner.jpg)
 <h1 align="center">Hi 👋, I'm Soumik Mitra</h1>
 <h3 align="center">A passionate Data science and Analyst learner from India</h3>
 
