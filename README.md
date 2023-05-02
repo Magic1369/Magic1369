@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sahilmagic2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QOqYnFseedo04rv4VLN_1qc-YDEBh81z/view?usp=drivesdk](https://drive.google.com/file/d/1QOqYnFseedo04rv4VLN_1qc-YDEBh81z/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QOqYnFseedo04rv4VLN_1qc-YDEBh81z/view?usp=drivesdk](https://drive.google.com/file/d/1brCkne6FxdFvJYRcNhIW_3Y46yVXaHRa/view?usp=drivesdk)
 
 - ⚡ Fun fact **I am quite cool 😎**
 
