@@ -11,7 +11,7 @@
 
 - 📝 I regularly write articles on [https://https//magic1369.blogspot.com](https://https//magic1369.blogspot.com)
 
-- 💬 Ask me about **SQL,Open CV,Excel,Python**
+- 💬 Ask me about **SQL,ML,Excel,Python**
 
 - 📫 How to reach me **sahilmagic2003@gmail.com**
 
